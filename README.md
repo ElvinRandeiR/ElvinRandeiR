@@ -1,3 +1,10 @@
+Hola
+RandeiR 
+Megustan
+Tus
+Videos
+
+
 - 👋 Hi, I’m @ElvinRandeiR
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...
